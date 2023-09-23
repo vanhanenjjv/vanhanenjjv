@@ -1,4 +1,4 @@
-### Hiho 👋 <img src="https://hit-counter.vanhanen.workers.dev?tag=github|vanhanenjjv|vanhanenjjv" />
+### Hiho 👋
 
 [LinkedIn](https://linkedin.com/in/vanhanenjjv)
 | [Telegram](https://t.me/vanhanenjjv)
